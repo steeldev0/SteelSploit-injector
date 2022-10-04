@@ -1,4 +1,5 @@
 Made by SteelDev#4805 on discord message for help
 ALSO this injector is mine yes 
-Thanks for using SteelSploit
-https://discord.gg/M9cXMKdT :)
+suscribe https://www.youtube.com/channel/UCPQ5iWHz0rs3XUErg0vBRhg
+join discord pls :))) https://discord.gg/hWGhpg3AbA
+Thanks for using SteelSploit my friend.
